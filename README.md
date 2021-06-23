@@ -1,0 +1,4 @@
+- 👋 Hello, Je suis Teiqko.
+- 👀 Je suis interested par l'informatique.
+- 🌱 Je suis actuelement en étude informatique. 
+- 📫 Vous pouvez me contacter sur discord Teiqko.#0404.
